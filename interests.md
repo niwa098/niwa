@@ -3,7 +3,7 @@
 
 場所：[K-TOWN 原宿 韓国フードコート](https://food-land-food-court.business.site/?utm_source=gmb&utm_medium=referral)
 
-時間：未定（営業時間は、10:30から）
+時間：4/16 11時？（暫定、営業時間は、10:30から）
 
 ---------------------------------------
 
